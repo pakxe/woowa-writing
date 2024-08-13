@@ -1,3 +1,5 @@
+![제목_없는_아트워크 17](https://github.com/user-attachments/assets/c8388f63-30ad-458d-ba9e-d05aa1252bec)
+
 # 목표: 건강한 습관을 의식적으로 유지하기
 
 - 액션 플랜
